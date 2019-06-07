@@ -9,7 +9,4 @@ prueba de edicion
 Sere
 
 
-gASTIA ESTUVO AQUI
-
-
 sere todos te odian <3
